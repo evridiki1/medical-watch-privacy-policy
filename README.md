@@ -1,1 +1,0 @@
-# medical-watch-privacy-policy
